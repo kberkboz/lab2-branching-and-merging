@@ -5,8 +5,10 @@
 - 1 3/4 cups granulated sugar
 - 3/4 cup unsweetened cocoa powder
 - Chocalate chips
+- white chocalate chips
 
 ## Instructions:
 1. Preheat the oven to 350°F (175°C).
 2. In a large bowl, whisk together the flour, sugar, and cocoa powder.
 3. Mix in the chocalate chips
+4. add some white chocalate
